@@ -1,0 +1,2 @@
+# Allin
+Perjalanan panjang 
